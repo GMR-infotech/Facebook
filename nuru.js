@@ -4,4 +4,12 @@ echo "Nuru"
 i am you triner 
 
 
-Datais vailbalie in repository directied
+Datais vailbali
+
+
+
+
+
+
+
+e in repository directied
